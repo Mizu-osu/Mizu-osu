@@ -1,7 +1,7 @@
 # Mizu - osu skins
 
 # [- Mathi ensalada ](https://drive.google.com/file/d/1595JLfoopn3ZXI14B2ZgTwr2yTsyoGuY/view?usp=sharing) 
-![](https://skins.osuck.net/uploads/posts/2018-09/1537856957_qmpp9gu.jpg)
+![](https://osu.ppy.sh/ss/17257925/2ff7)
 
 # [- -+Aesthetic (1.3.9)](https://drive.google.com/file/d/15LcmTrtk1dLwgBVNkYmXxsKyTmL4REm3/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/17257919/ace8)
