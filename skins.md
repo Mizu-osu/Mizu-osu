@@ -12,14 +12,14 @@
 # [- mathi ensalada v1.5 spare edit -](https://drive.google.com/file/d/1EyJU6kEEUN_P85faTOGNBbAk9ipRD2AR/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17257940/012d)
 
-# [- ryan(mystia)edit -](https://mega.nz/file/UGgmRCJa#aJeh65pjSPl_lT-rKkT9R3tPYYtkBVpJNWfimEEkgC4)
-![](https://osu.ppy.sh/ss/15871534/3bf7)
+# [- WhiteCat (1.0) -](https://drive.google.com/file/d/1A9Ktx7MY-UP5iOGTTHsyQP622zDOKqfe/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17257947/66b1)
 
 # [- tony varv -](https://mega.nz/file/5WZ1TCDb#kGvBLznI9aH-KxbBQsIkOl5Lumaeere0Jn9rj7qaP4Q)
 ![](https://osu.ppy.sh/ss/15626158/88a1)
 
-# [- boop -](https://mega.nz/file/Fb5kGSZT#DhQ6vXx1L-0ndf6sr4yoNwE6kwnvjDA1PgK4Ev5GkLs)
-![](https://osu.ppy.sh/ss/14733957/6cce)
+# [- ((P R I Z M C L I C K S)) -](https://drive.google.com/file/d/1wi6Bri_9RjOj8fMIO6BxK3lh2jO71Bo6/view)
+![](https://i.imgur.com/JttSIMb.png)
 
 # [- andros edit -](https://www.dropbox.com/s/czcg38gyz6p04e7/andros%20edit.osk?dl=0)
 ![](adding screenshot later)
