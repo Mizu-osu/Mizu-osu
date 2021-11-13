@@ -21,8 +21,8 @@
 # [- ((P R I Z M C L I C K S)) -](https://drive.google.com/file/d/1wi6Bri_9RjOj8fMIO6BxK3lh2jO71Bo6/view)
 ![](https://i.imgur.com/JttSIMb.png)
 
-# [- andros edit -](https://www.dropbox.com/s/czcg38gyz6p04e7/andros%20edit.osk?dl=0)
-![](adding screenshot later)
+# [- Jace 6.25 -](https://drive.google.com/file/d/1vWijGNzHwW_KjJhPOQ_xj44CLWd88iCW/view)
+![](https://osu.ppy.sh/ss/17257969/eba1)
 
 # [- vaxei 404 -](https://mega.nz/file/hzAHnYrb#nLbTxK29IrqTj5mZl4Yob9ZLYh1PeW2LUC6W0y5mGrQ)
 ![](adding screenshot later)
