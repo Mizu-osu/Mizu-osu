@@ -13,7 +13,7 @@
 ![](https://osu.ppy.sh/ss/17257940/012d)
 
 # [- WhiteCat (1.0) -](https://drive.google.com/file/d/1A9Ktx7MY-UP5iOGTTHsyQP622zDOKqfe/view?usp=sharing)
-![](https://osu.ppy.sh/ss/17257947/66b1)
+![](https://osu.ppy.sh/ss/17258087/9b86)
 
 # [- tony varv -](https://mega.nz/file/5WZ1TCDb#kGvBLznI9aH-KxbBQsIkOl5Lumaeere0Jn9rj7qaP4Q)
 ![](https://osu.ppy.sh/ss/15626158/88a1)
@@ -31,7 +31,7 @@
 ![](https://osu.ppy.sh/ss/17257981/a9c3)
 
 # [- fierymod v8 realest ver -](https://drive.google.com/file/d/1uWP1baU6bQaX76Je0AP_qFv8TWLCx426/view)
-![](https://osu.ppy.sh/ss/17257987/4e48)
+![](https://osu.ppy.sh/ss/17258085/b0ab)
 
 # [- - #(SK) Enumi 1.0 - BaconBoi -](https://drive.google.com/file/d/1W5j5_N-OIPnxe2k8eeTyWyoPmOXrENw7/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17257997/63d8)
