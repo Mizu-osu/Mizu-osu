@@ -1,4 +1,4 @@
-# Mizu - osu skin
+# Mizu - osu skins
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
