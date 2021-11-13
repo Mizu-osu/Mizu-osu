@@ -24,26 +24,26 @@
 # [- Jace 6.25 -](https://drive.google.com/file/d/1vWijGNzHwW_KjJhPOQ_xj44CLWd88iCW/view)
 ![](https://osu.ppy.sh/ss/17257969/eba1)
 
-# [- vaxei 404 -](https://mega.nz/file/hzAHnYrb#nLbTxK29IrqTj5mZl4Yob9ZLYh1PeW2LUC6W0y5mGrQ)
-![](adding screenshot later)
+# [- vaxei 404 -](https://drive.google.com/file/d/1bTLs2-kxiEHDt5VQR8ZcfCFEeNoDTbVU/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17257975/ad37)
 
-# [- beep -](https://www.dropbox.com/s/h5chgecj4r089d5/Beep.osk?dl=0)
-![](https://osu.ppy.sh/ss/16591294/f443)
+# [- -seungwon elaina -](https://drive.google.com/file/d/1sO05Vpu0vxcDpEYBDhzfIrGX6HOIAHCq/view)
+![](https://osu.ppy.sh/ss/17257981/a9c3)
 
-# [- Hey DT Purple Ryuk edit -](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
-![](https://osu.ppy.sh/ss/14603395/28ff)
+# [- fierymod v8 realest ver -](https://drive.google.com/file/d/1uWP1baU6bQaX76Je0AP_qFv8TWLCx426/view)
+![](https://osu.ppy.sh/ss/17257987/4e48)
 
-# [- Ryuk Rafis Toy -](https://www.dropbox.com/s/dn70wp6svjix7md/-%20Ryuk%20Rafis%20Toy%20-.osk?dl=0)
-![](https://osu.ppy.sh/ss/14583207/1c59)
+# [- - #(SK) Enumi 1.0 - BaconBoi -](https://drive.google.com/file/d/1W5j5_N-OIPnxe2k8eeTyWyoPmOXrENw7/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17257997/63d8)
 
-# [- Rafis but Clack -](https://www.dropbox.com/s/x6uoux9vmr2pn0i/-%20Rafis%20but%20Clack-.osk?dl=0)
-![](https://osu.ppy.sh/ss/14569969/d01a)
+# [- RYUKAYYYY MONKOOO -](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc)
+![](https://osu.ppy.sh/ss/17258004/3a15)
 
-# [Rafis Generic DT skin](https://www.dropbox.com/s/mj8snq3xz4rx15y/Rafis%20Generic%20DT%20skin.osk?dl=0)
-![](https://osu.ppy.sh/ss/14372487/7fb3)
+# [- - Lefilia+Aesthetic (couldnt find the actual skin but this is the same gameplay!) -](https://drive.google.com/file/d/1BLLAdP6eOSwaAChpf4sl04gVnubIjMxV/edit)
+![](https://osu.ppy.sh/ss/17258061/f139)
 
-# [- tko -](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
-![](https://osu.ppy.sh/ss/14143466/ad8f)
+# [- - ☾ Spazza17 ☽ 『NM (vaxei edit) -](https://drive.google.com/file/d/1tknGDHejUsjEMgD9ucPwg_EVmgvotWAO/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17258072/7aa2)
 
 # [- New Dumii Edit -](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14118234/414e)
