@@ -37,7 +37,7 @@
 ![](https://osu.ppy.sh/ss/17257997/63d8)
 
 # [- RYUKAYYYY MONKOOO -](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc)
-![](https://osu.ppy.sh/ss/17258004/3a15)
+![](https://osu.ppy.sh/ss/17258081/7d0a)
 
 # [- - ☾ Spazza17 ☽ 『NM (vaxei edit) -](https://drive.google.com/file/d/1tknGDHejUsjEMgD9ucPwg_EVmgvotWAO/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17258072/7aa2)
