@@ -47,3 +47,8 @@
 
 # [- dumii aesthetic -](https://www.dropbox.com/s/s1vvmc342myw4q7/-dummy%20aesthetic%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12004410)
+
+# [- seoulv10 + jinx -](https://drive.google.com/file/d/1vdymXgKMf2YqfwJuZRw2GnAKYARpavVk/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17438947/b0b3)
+
+
