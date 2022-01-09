@@ -51,4 +51,13 @@
 # [- seoulv10 + jinx -](https://drive.google.com/file/d/1vdymXgKMf2YqfwJuZRw2GnAKYARpavVk/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17438947/b0b3)
 
+# [- FlyingDeGozaru edit -](https://drive.google.com/file/d/1vbo1K8Lwq0BVGavGSn2kPec8P3QLu5Zn/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17438955/9d15)
+
+# [- MonkoEdit -](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
+![](https://osu.ppy.sh/ss/17438970/d509)
+
+
+
+
 
