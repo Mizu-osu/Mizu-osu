@@ -19,13 +19,13 @@
 ![](https://i.imgur.com/SE7PCWZ.jpeg)
 
 # [- tony varv -](https://mega.nz/file/5WZ1TCDb#kGvBLznI9aH-KxbBQsIkOl5Lumaeere0Jn9rj7qaP4Q)
-![](https://osu.ppy.sh/ss/15626158/88a1)
+![](https://i.imgur.com/DmjHzSb.jpeg)
 
 # [- ((P R I Z M C L I C K S)) -](https://drive.google.com/file/d/1wi6Bri_9RjOj8fMIO6BxK3lh2jO71Bo6/view)
 ![](https://i.imgur.com/JttSIMb.png)
 
 # [- Jace 6.25 -](https://drive.google.com/file/d/1vWijGNzHwW_KjJhPOQ_xj44CLWd88iCW/view)
-![](https://osu.ppy.sh/ss/17257969/eba1)
+![](https://i.imgur.com/1LaHbja.jpeg)
 
 # [- vaxei 404 -](https://drive.google.com/file/d/1bTLs2-kxiEHDt5VQR8ZcfCFEeNoDTbVU/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17257975/ad37)
