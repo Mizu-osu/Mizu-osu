@@ -28,7 +28,7 @@
 ![](https://i.imgur.com/1LaHbja.jpeg)
 
 # [- vaxei 404 -](https://drive.google.com/file/d/1bTLs2-kxiEHDt5VQR8ZcfCFEeNoDTbVU/view?usp=sharing)
-![](https://osu.ppy.sh/ss/17257975/ad37)
+![](https://i.imgur.com/GW0bOnr.jpeg)
 
 # [- -seungwon elaina -](https://drive.google.com/file/d/1sO05Vpu0vxcDpEYBDhzfIrGX6HOIAHCq/view)
 ![](https://osu.ppy.sh/ss/17257981/a9c3)
