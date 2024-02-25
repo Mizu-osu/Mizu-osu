@@ -80,3 +80,6 @@
 
 # [- re;owoTuna -](https://drive.google.com/file/d/1KJopsJYEeAVjD-74Z0Vtp2IoZ5UH_1EY/view?usp=drive_link)
 ![](https://i.imgur.com/tt7JYuq.jpeg)
+
+# [- Aristia - Trail Mix -](https://mega.nz/file/SeZA2SqS#ttnDGGKK5q-gIDFKfY5NOnS94yMC5Wdx24WWReD9Kl0)
+![](https://i.imgur.com/EaCGGWk.jpeg)
