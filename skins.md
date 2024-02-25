@@ -43,7 +43,7 @@
 ![](https://i.imgur.com/UkPYDCo.jpeg)
 
 # [- ☾ Spazza17 ☽ 『NM (vaxei edit) -](https://drive.google.com/file/d/1tknGDHejUsjEMgD9ucPwg_EVmgvotWAO/view?usp=sharing)
-![](https://osu.ppy.sh/ss/17258072/7aa2)
+![](https://i.imgur.com/Eak8EPO.jpeg)
 
 # [- dumii aesthetic -](https://www.dropbox.com/s/s1vvmc342myw4q7/-dummy%20aesthetic%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12004410)
