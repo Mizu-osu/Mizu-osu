@@ -55,7 +55,7 @@
 ![](https://i.imgur.com/JWvaJ2n.jpeg)
 
 # [- MonkoEdit -](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
-![](https://osu.ppy.sh/ss/17438970/d509)
+![](https://i.imgur.com/PynOBpu.jpeg)
 
 
 
