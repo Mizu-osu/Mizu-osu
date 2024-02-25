@@ -13,7 +13,7 @@
 ![](https://i.imgur.com/Nal6pND.jpeg)
 
 # [- mathi ensalada v1.5 spare edit -](https://drive.google.com/file/d/1EyJU6kEEUN_P85faTOGNBbAk9ipRD2AR/view?usp=sharing)
-![](https://osu.ppy.sh/ss/17257940/012d)
+![](https://i.imgur.com/KCsz7De.jpeg)
 
 # [- WhiteCat (1.0) -](https://drive.google.com/file/d/1A9Ktx7MY-UP5iOGTTHsyQP622zDOKqfe/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17258087/9b86)
