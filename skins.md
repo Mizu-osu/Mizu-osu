@@ -7,7 +7,7 @@
 ![](https://i.imgur.com/wpxpMUi.jpg)
 
 # [- Aesthetic (1.3.9) -](https://drive.google.com/file/d/15LcmTrtk1dLwgBVNkYmXxsKyTmL4REm3/view?usp=sharing) 
-![](https://osu.ppy.sh/ss/17257919/ace8)
+![](https://i.imgur.com/lyORn5R.jpeg)
 
 # [- bees -](https://mizaru.s-ul.eu/TNinjFkw) 
 ![](https://osu.ppy.sh/ss/11775775)
