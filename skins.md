@@ -49,7 +49,7 @@
 ![](https://i.imgur.com/onLDxCa.jpeg)
 
 # [- seoulv10 + jinx -](https://drive.google.com/file/d/1vdymXgKMf2YqfwJuZRw2GnAKYARpavVk/view?usp=sharing)
-![](https://osu.ppy.sh/ss/17438947/b0b3)
+![](https://i.imgur.com/f3hIxg3.jpeg)
 
 # [- FlyingDeGozaru edit -](https://drive.google.com/file/d/1vbo1K8Lwq0BVGavGSn2kPec8P3QLu5Zn/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17438955/9d15)
