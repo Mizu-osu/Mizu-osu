@@ -60,5 +60,6 @@
 # [- angelica remake -](https://drive.google.com/file/d/1ph-StSjMqLmbbqnSW2cpkmatdn-75NiT/view?usp=sharing)
 ![](https://i.imgur.com/hrXXNxq.jpeg)
 
-
+# [- aricin edit -](https://drive.google.com/file/d/1ehU4EMz0ggRJojW5D5kXKcxJaZC5d39p/view?usp=sharing)
+![](https://i.imgur.com/5pRo4ms.jpeg)
 
