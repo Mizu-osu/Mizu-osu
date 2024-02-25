@@ -10,7 +10,7 @@
 ![](https://i.imgur.com/lyORn5R.jpeg)
 
 # [- bees -](https://mizaru.s-ul.eu/TNinjFkw) 
-![](https://osu.ppy.sh/ss/11775775)
+![](https://i.imgur.com/Nal6pND.jpeg)
 
 # [- mathi ensalada v1.5 spare edit -](https://drive.google.com/file/d/1EyJU6kEEUN_P85faTOGNBbAk9ipRD2AR/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17257940/012d)
