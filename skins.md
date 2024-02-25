@@ -1,7 +1,7 @@
 # Mizu - osu skins
 
 # [-《CK》 Bacon boi 1.0 『blue』-](https://drive.google.com/file/d/1JRDbxtEVFYMgt9ls4rvIRs2v0IfBddFO/view?usp=sharing) 
-![]([https://osu.ppy.sh/ss/17258138/e2c4](https://imgur.com/a/PXHTcaV))
+![](https://imgur.com/a/PXHTcaV)
 
 # [- Mathi ensalada -](https://drive.google.com/file/d/1595JLfoopn3ZXI14B2ZgTwr2yTsyoGuY/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/17257925/2ff7)
