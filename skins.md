@@ -74,3 +74,6 @@
 
 #[- Seouless v5 -](https://drive.google.com/file/d/1pQ__1uVRJQDWD-kxGh9ltgMKkZTP5Ngn/view?usp=drive_link)
 ![](https://i.imgur.com/DrI0MND.jpeg)
+
+#[- tlqkf -](https://cdn.discordapp.com/attachments/1173596051610017802/1206529892330770472/tlqkf.osk?ex=65dc5786&is=65c9e286&hm=67f773669eaf57fb4662daa1c3f3e636ee069405767f4db97f67bc2b26fb0845&)
+![](https://i.imgur.com/Pq3IiF4.jpeg)
