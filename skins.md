@@ -16,7 +16,7 @@
 ![](https://i.imgur.com/KCsz7De.jpeg)
 
 # [- WhiteCat (1.0) -](https://drive.google.com/file/d/1A9Ktx7MY-UP5iOGTTHsyQP622zDOKqfe/view?usp=sharing)
-![](https://osu.ppy.sh/ss/17258087/9b86)
+![](https://i.imgur.com/SE7PCWZ.jpeg)
 
 # [- tony varv -](https://mega.nz/file/5WZ1TCDb#kGvBLznI9aH-KxbBQsIkOl5Lumaeere0Jn9rj7qaP4Q)
 ![](https://osu.ppy.sh/ss/15626158/88a1)
