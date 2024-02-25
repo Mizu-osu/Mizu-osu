@@ -31,7 +31,7 @@
 ![](https://i.imgur.com/GW0bOnr.jpeg)
 
 # [- -seungwon elaina -](https://drive.google.com/file/d/1sO05Vpu0vxcDpEYBDhzfIrGX6HOIAHCq/view)
-![](https://osu.ppy.sh/ss/17257981/a9c3)
+![](https://i.imgur.com/nXQx3bP.jpeg)
 
 # [- fierymod v8 realest ver -](https://drive.google.com/file/d/1uWP1baU6bQaX76Je0AP_qFv8TWLCx426/view)
 ![](https://osu.ppy.sh/ss/17258085/b0ab)
