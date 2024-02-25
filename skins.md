@@ -83,3 +83,6 @@
 
 # [- Aristia - Trail Mix -](https://mega.nz/file/SeZA2SqS#ttnDGGKK5q-gIDFKfY5NOnS94yMC5Wdx24WWReD9Kl0)
 ![](https://i.imgur.com/EaCGGWk.jpeg)
+
+# [- Vaxei 2023 -](https://mega.nz/folder/xF911Zqb#CBr250X1ehK28VGwdZCnww)
+![](https://i.imgur.com/V1cg5HL.jpeg)
