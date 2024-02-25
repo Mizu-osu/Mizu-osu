@@ -37,7 +37,7 @@
 ![](https://i.imgur.com/bhGcOkk.jpeg)
 
 # [- #(SK) Enumi 1.0 - BaconBoi -](https://drive.google.com/file/d/1W5j5_N-OIPnxe2k8eeTyWyoPmOXrENw7/view?usp=sharing)
-![](https://osu.ppy.sh/ss/17257997/63d8)
+![](https://i.imgur.com/q4Joe4P.jpeg)
 
 # [- RYUKAYYYY MONKOOO -](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc)
 ![](https://osu.ppy.sh/ss/17258081/7d0a)
