@@ -34,7 +34,7 @@
 ![](https://i.imgur.com/nXQx3bP.jpeg)
 
 # [- fierymod v8 realest ver -](https://drive.google.com/file/d/1uWP1baU6bQaX76Je0AP_qFv8TWLCx426/view)
-![](https://osu.ppy.sh/ss/17258085/b0ab)
+![](https://i.imgur.com/bhGcOkk.jpeg)
 
 # [- #(SK) Enumi 1.0 - BaconBoi -](https://drive.google.com/file/d/1W5j5_N-OIPnxe2k8eeTyWyoPmOXrENw7/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17257997/63d8)
