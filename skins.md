@@ -57,7 +57,8 @@
 # [- MonkoEdit -](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
 ![](https://i.imgur.com/PynOBpu.jpeg)
 
-
+# [- angelica remake -](https://drive.google.com/file/d/1ph-StSjMqLmbbqnSW2cpkmatdn-75NiT/view?usp=sharing)
+![](https://i.imgur.com/hrXXNxq.jpeg)
 
 
 
